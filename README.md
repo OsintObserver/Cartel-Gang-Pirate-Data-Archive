@@ -1,2 +1,2 @@
 # Cartel-Gang-Tattoos-Archive
-Archive Tattoos of Cartels and Gangs 
+Archive Tattoos of Cartel and Gangs Members
